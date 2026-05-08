@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Premiere Pro for macOS transition with Adobe Premiere Pro for macOS best Transition: motion-tracking & shortcut-customization. Featuring motion-tracking and
 
 
 
